@@ -1,3 +1,5 @@
 # ps3
 
-ps3xploit.net
+http://www.ps3xploit.net
+
+http2://www.ps3xploit.net
