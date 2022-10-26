@@ -2,4 +2,4 @@
 
 http://www.ps3xploit.net
 
-http2://www.ps3xploit.net
+https://www.ps3xploit.net
